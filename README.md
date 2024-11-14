@@ -23,7 +23,7 @@ Sou estudante da _[Universidade Paraíso](https://lp.unifapce.edu.br/)_, do curs
 
 ### 📧 Redes Sociais 📧
 
-- **[Linkedin](https://www.linkedin.com/in/eliel-lira-a46bb5261/)**
+- **[Linkedin](https://www.linkedin.com/in/eliel-lira-dev/)**
 - **[Perfil Público DIO](https://www.dio.me/users/eliel_lira_dev)**
 
 
